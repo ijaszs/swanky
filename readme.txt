@@ -1,0 +1,28 @@
+It is a free HTML CSS template by TemplatesJungle.com
+You can use this template as a starter template and start building as you require.
+
+The code is consistent and can be easily maintained as we have followed a good coding standards. We want everyone to easily understand it and modify it according to their requirement. As the main goal of providing these templates is to give you something to work on before even starting.
+
+
+FREE FOR BOTH PERSONAL AND COMMERCIAL USE
+
+This HTML Template is provided by TemplatesJungle.com and is free to use in both personal and commercial projects as long as you don't remove our credit link in the footer.
+
+
+RIGHTS
+
+You are allowed to use it in your personal projects and commercial projects.
+
+You can modify and sell it to your clients.
+
+
+
+
+
+SUPPORT
+
+You can contact us to report any bugs and errors in the template. We will try and fix them immediately although it's a free resource.
+
+Feel free to let us know about what you want to see in the future downloads. We will definitely give it a thought while creating our next freebie.
+
+
